@@ -1,0 +1,1 @@
+# emlak-kay-t
